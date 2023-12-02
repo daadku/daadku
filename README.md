@@ -1,0 +1,5 @@
+- 👋 hola, I’m Bear Rodriguez
+- 👀 I’m interested in Gaming, editing,
+- 🌱 I’m currently learning. how to live life
+- 💞️ I’m looking to collaborate on.
+- 📫 How to reach me Instagram is daadku
